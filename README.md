@@ -7,7 +7,7 @@
 
 今の活動拠点は<br>
 note (https://note.com/mahokoro)です。<br>
-詳しくは　https://lit.link/TatsuyaGamo　を参照してください。<br>
+詳しくは　https://lit.link/TatsuyaGamo　 を参照してください。<br>
 本はAmazonへGO❗️<br>
 - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - 
 【その他】<br>
